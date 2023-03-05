@@ -1,2 +1,2 @@
 
-[CV](https://github.com/AverageLinuxEnjoyer/resume/files/9637494/no.bullshit.cv.pdf)
+[CV](https://github.com/AverageLinuxEnjoyer/resume/files/10892161/CV-2.pdf)
